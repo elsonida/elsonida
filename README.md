@@ -1,6 +1,8 @@
 ### Hi there 👋
 
-A person who just graduated ; with basic knowledge in programming and with a great desire to develop and to get to know different aspects of technology environmen🏻👩
+A person who just graduated in Computer Engineering💻
+
+basic knowledge in programming and with a great desire to develop and to get to know different aspects of technology environment👩
 
 a person always trying to bring the best out of everyone and every situation😃
 
